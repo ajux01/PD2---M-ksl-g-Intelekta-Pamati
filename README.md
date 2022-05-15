@@ -1,0 +1,1 @@
+# PD2---M-ksl-g-Intelekta-Pamati
