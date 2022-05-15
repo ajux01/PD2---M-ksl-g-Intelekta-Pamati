@@ -1,1 +1,1 @@
-# PD2---M-ksl-g-Intelekta-Pamati
+# PD2-Maksliga-Intelekta-Pamati
